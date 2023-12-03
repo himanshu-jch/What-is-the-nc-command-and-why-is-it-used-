@@ -1,1 +1,0 @@
-# What-is-the-nc-command-and-why-is-it-used-
